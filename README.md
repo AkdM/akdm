@@ -7,4 +7,4 @@
 
 #### Support me
 
-You liked my work? You can buy me a [**hot chocolate**](https://www.buymeacoffee.com/AkdM)!
+You like my work? You can buy me a [**hot chocolate**](https://www.buymeacoffee.com/AkdM)!
